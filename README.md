@@ -1,0 +1,2 @@
+# poorkid
+study
